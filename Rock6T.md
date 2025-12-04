@@ -2,4 +2,4 @@
 
 Le rock 6 temps est une évolution des danses swing comme le Lindy Hop (hop hop hop le Lindy hop).
 
-Cela n'a _rien à voir_ avec le "rock 4 temps" qui n'est pas une danse swing, ne possédant pas de "triple step".
+Le rock 6 temps est mainetant dép assé par le rock 24 temps !
